@@ -8,7 +8,7 @@
 
 1. Becca Paden @beccapaden
 2. Charlotte Moore @cem62831
-3. Gabe Hanes @
+3. Gabe Hanes @gabehanes
 4. Tyler Haleblian @
 5. Logan Carras @lgc52432
 
